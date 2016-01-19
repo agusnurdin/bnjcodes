@@ -1,0 +1,1 @@
+kode js navigasi dengan angka
